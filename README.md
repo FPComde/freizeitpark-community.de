@@ -1,3 +1,5 @@
+Aktuelle Wartezeiten, News, Informationen, Termine und Fotos auf einen Blick. Wir sind eine Deutsche Community mit besonderem Augenmerk auf Freizeitparks. Tausche Dich mit anderen Fans aus!
+
 https://www.freizeitpark-community.de
 
 
